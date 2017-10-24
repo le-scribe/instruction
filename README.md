@@ -1,4 +1,4 @@
-Ecclésiastique 39,1–11
+*Ecclésiastique 39,1–11*
 
 Il scrute la sagesse de tous les anciens,<br/>
 il consacre ses loisirs aux prophéties.
