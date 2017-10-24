@@ -1,6 +1,6 @@
 Ecclésiastique 39,1–11
 
-Il scrute la sagesse de tous les anciens,
+Il scrute la sagesse de tous les anciens,<br/>
 il consacre ses loisirs aux prophéties.
 
 Il conserve les récits des hommes célèbres,
