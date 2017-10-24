@@ -36,11 +36,11 @@ et mettra sa fierté dans la loi de l'alliance du Seigneur.
 Beaucoup vanteront son intelligence
 et jamais on ne l'oubliera.
 
-Son souvenir ne s'effacera pas,<br/>
+Son souvenir ne s'effacera pas,
 son nom vivra de génération en génération.
 
-Des nations proclameront sa sagesse<br/>
+Des nations proclameront sa sagesse
 et l'assemblée célébrera ses louanges.
 
-S'il vit longtemps son nom sera plus glorieux que mille autres,<br/>
+S'il vit longtemps son nom sera plus glorieux que mille autres,
 et s'il meurt cela lui suffit.
