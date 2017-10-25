@@ -1,10 +1,8 @@
-_Prière à faire en conscience, dans un dialogue avec l'ondine responssable de l'eau que vous souhaitez dynamiser._
+# Dynamiser l'eau
 
-De la plus pure des sources,
+_Prière à faire en conscience, dans un dialogue avec l'ondine responsable de l'eau que vous souhaitez dynamiser._
 
-par le plus vif des torrents,
-
-jusqu'à la plus belle des rivières,
-
+De la plus pure des sources,<br/>
+par le plus vif des torrents,<br/>
+jusqu'à la plus belle des rivières,<br/>
 Ondine, rappelle toi et dynamise cette eau.
-
