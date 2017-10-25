@@ -1,4 +1,4 @@
-*Le scribe* - _Ecclésiastique 39,1–11_
+**Le scribe** - _Ecclésiastique 39,1–11_
 
 1. Il scrute la sagesse de tous les anciens,<br/>
 il consacre ses loisirs aux prophéties.
