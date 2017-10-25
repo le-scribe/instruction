@@ -1,6 +1,7 @@
 _Ecclésiastique 39,1–11_
 
-1. Il scrute la sagesse de tous les anciens, il consacre ses loisirs aux prophéties.
+1. Il scrute la sagesse de tous les anciens,<br/>
+il consacre ses loisirs aux prophéties.
 2. Il conserve les récits des hommes célèbres, il pénètre dans les détours des paraboles.
 
 Il cherche le sens caché des proverbes,  
