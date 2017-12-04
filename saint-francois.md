@@ -10,7 +10,7 @@ Là où est le désespoir, que je mette l'espérance.<br/>
 Là où sont les ténèbres, que je mette la lumière.<br/>
 Là où est la tristesse, que je mette la joie.<br/>
 
-O Seigneur, que je ne cherche pas tant à<br/>
+Ô Seigneur, que je ne cherche pas tant à<br/>
 être consolé qu'à consoler,<br/>
 à être compris qu'à comprendre,<br/>
 à être aimé qu'à aimer.<br/>
