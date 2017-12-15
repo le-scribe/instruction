@@ -25,8 +25,8 @@ Je lui remets toute dette envers moi, sans condition aucune et pour toujours. <b
 Je Te prie Seigneur Jésus, de le (la) bénir et de le (la) combler de ta grâce dès aujourd'hui <br/>
 et pour toujours. Seigneur Jésus, Toi qui es Miséricorde, je mets ma confiance en Toi. 
 
-Remplis moi je t'en prie, de ta paix et de ta joie, et répands les sur lui (elle) également. 
-Je Te le demande par les mérites de tes Saintes Plaies et de ta Croix glorieuse. 
+Remplis moi je t'en prie, de ta paix et de ta joie, et répands les sur lui (elle) également. <br/>
+Je Te le demande par les mérites de tes Saintes Plaies et de ta Croix glorieuse.  <br/>
 Je te rends grâce de tout ce que ton Amour m'accorde aujourd'hui, de tout ce que Tu feras 
 encore demain en moi, et de ce que Tu feras dans cette personne à laquelle je pardonne.
 
