@@ -27,7 +27,8 @@ et pour toujours. Seigneur Jésus, Toi qui es Miséricorde, je mets ma confiance
 
 Remplis moi je t'en prie, de ta paix et de ta joie, et répands les sur lui (elle) également. <br/>
 Je Te le demande par les mérites de tes Saintes Plaies et de ta Croix glorieuse.  <br/>
-Je te rends grâce de tout ce que ton Amour m'accorde aujourd'hui, de tout ce que Tu feras 
-encore demain en moi, et de ce que Tu feras dans cette personne à laquelle je pardonne.
+Je te rends grâce de tout ce que ton Amour m'accorde aujourd'hui,  <br/>
+de tout ce que Tu feras encore demain en moi, <br/>
+et de ce que Tu feras dans cette personne à laquelle je pardonne.
 
 AMEN.
