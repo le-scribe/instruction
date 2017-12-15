@@ -17,9 +17,9 @@ la grâce de venir m'aider à pardonner. De moi même, je ne puis pardonner vrai
 me Tu nous le demandes. C'est pourquoi j'implore l'aide de ton Amour et la puissance de <br/>
 ton Sang qui nous donne accès à ta Miséricorde.
 
-Je pardonne à toutes les personnes qui m'ont blessé, en acte comme en intention, consciemment ou inconsciemment <br/>
-de quelque façon que ce soit. Je pardonne en particulier à ...... tout le mal qu'il (elle) <br/>
-a pu me faire.
+Je pardonne à toutes les personnes qui m'ont blessé, en acte comme en intention, <br/>
+consciemment ou inconsciemment, de quelque façon que ce soit. <br/>
+Je pardonne en particulier à ...... tout le mal qu'il (elle) a pu me faire.
 
 Je lui remets toute dette envers moi, sans condition aucune et pour toujours. <br/>
 Je Te prie Seigneur Jésus, de le (la) bénir et de le (la) combler de ta grâce dès aujourd'hui <br/>
