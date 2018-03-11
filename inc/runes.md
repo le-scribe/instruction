@@ -1,6 +1,6 @@
 # Runes
 
-Vous trouverez des tas de ressources plus ou moins utiles sur les runes, leur origine et leur sens. Vous trouverez de nombreuses listes de correpsondances entre les runes, les éléments, les animaux, les arbres et les plantes. 
+Vous trouverez des tas de ressources plus ou moins utiles sur les runes, leur origine et leur sens. Vous trouverez de nombreuses listes de correspondances entre les runes, les éléments, les animaux, les arbres et les plantes. 
 
 Vous n'êtes pas devant un nouveau recueil de ce type.
 
