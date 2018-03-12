@@ -14,4 +14,3 @@ Car c’est à Toi qu’appartiennent en toute éternité, <br/>
 le Règne, la Puissance et la Gloire.
 
 Amen
-

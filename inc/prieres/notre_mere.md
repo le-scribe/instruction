@@ -15,4 +15,3 @@ Car c’est à Toi qu’appartiennent <br/>
 la Terre, le Corps et la Santé.
 
 Amen
-
