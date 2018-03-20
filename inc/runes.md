@@ -33,6 +33,6 @@ Sa forme évoque la montée de l'Etre vers le divin, qui retourne à la matière
 ## Thurisaz
 
 C'est l'épine, l'embuche sur le chemin, l'expérience qui fait grandir. Thurisaz est le piège placé sur nos chemins de vie pour nous
-faire apprendre. Soi vous tomber dedans et apprenez de vos erreurs, soit vous l'esquiver et confirmez ainsi avoir grandi.
+faire apprendre. Soit vous tombez dedans et apprenez de vos erreurs, soit vous l'esquiver et confirmez ainsi avoir grandi.
 
 
